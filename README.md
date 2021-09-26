@@ -6,7 +6,7 @@
 Team members
 ------------
 Priya |
-Prerana | 
+Prerna | 
 Nupur |
 Patmanjari |
 Manya |
